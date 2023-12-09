@@ -1,1 +1,0 @@
-# AI_Academy_capstone_project
